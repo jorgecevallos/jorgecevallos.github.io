@@ -1,2 +1,0 @@
-# jorgecevallos.github.io
-portafolio 
